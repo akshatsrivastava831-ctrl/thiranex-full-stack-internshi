@@ -1,0 +1,1 @@
+# thiranex-full-stack-internshi
